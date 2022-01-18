@@ -16,3 +16,5 @@ Add the following:
 Whisk in the Xanthan gum (with a tea sieve) until desired texture is achieved.
 
 Let steep for a few minutes.
+
+![](2020220118_164435.jpg)
