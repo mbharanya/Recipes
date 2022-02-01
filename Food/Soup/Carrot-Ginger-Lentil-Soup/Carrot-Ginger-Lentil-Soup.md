@@ -18,6 +18,7 @@ Add
 - Bouillon Cube
 - a few strands of saffron
 - a squirt of honey
+- 4 small potatoes (cooked, or raw)
 
 Let cook for 15-20min to soften carrots
  
