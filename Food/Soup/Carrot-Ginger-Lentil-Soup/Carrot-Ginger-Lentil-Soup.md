@@ -6,6 +6,7 @@ Toast the following with oil
 - 2 red onions, diced
 - 4 cloves garlic, diced
 - handful of whole coriander seeds
+- Tablespoon of chilli flakes (thai)
 
 Deglaze with
 - 1dl white wine
