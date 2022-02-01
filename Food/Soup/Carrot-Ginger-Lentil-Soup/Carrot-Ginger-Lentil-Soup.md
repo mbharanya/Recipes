@@ -14,6 +14,7 @@ Deglaze with
 Add 
 - 5-6 Carrots, roughly cut
 - Black Pepper
+- ~5 tablespoons ground coconut
 - MSG
 - Salt
 - Bouillon Cube
