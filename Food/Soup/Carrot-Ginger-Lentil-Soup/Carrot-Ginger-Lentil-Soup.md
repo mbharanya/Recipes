@@ -40,5 +40,4 @@ In a separate blender blend with some water:
 Add the to the soup at the end to preserve the spicyness of ginger
 
 Garnish with fresh black pepper, flaky salt and cashew yogurt
-
-![](2020220118_164435.jpg)
+![](photo_2022-02-01_18-48-23.jpg)
